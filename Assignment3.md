@@ -1,0 +1,3 @@
+For this assignment, you are asked to consider several aspects of your social identity. This exercise is derived from resources available from the University of Michigan Inclusive Teaching Initiative.
+
+Consider the social identity wheel and discussion of Social Identity Groups described on this social identity wheel handout. Select at least two of the prompts that appear in the wheel and respond to them as part of your portfolio. You may choose more than two of the prompts. In addition to naming identities as required by the prompts, provide a short discussion of why you answered with those identities.
