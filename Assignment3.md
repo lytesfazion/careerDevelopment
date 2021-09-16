@@ -22,19 +22,7 @@ All that being said now that I am older I have found comfort in to space between
   
   
   
- **Brain storm:**
-  
-
-  When other people see me they see a Black woman and they will act? based on their preconcived ideas
-  The two identities that have the greatest effect on how others precieve me is my race and gender. I am a Black woman and in most speces I tend to stick out. 
-  
-  I am also aware that people have preconcived ideas on what I can and cannot do.
-  It's pretty simple, for what seems like forever people have tried to put women in a box and limit what they were allowed to do so now ther
-  
-  The biggest thing beside complete ignorance is the amount of assumption I encounter. These are mainly based on 
-  
-  Woman: Sports/ physical activites. Intelect
-  Black: Intelect. People talk to me different. 
+ 
   
   
  
