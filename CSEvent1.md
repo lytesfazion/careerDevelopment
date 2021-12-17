@@ -1,1 +1,9 @@
+**Event 1: CS Department Even**
 
+All Women in Tech general meetings 
+
+
+Our goal with the women in Tech general meeting was to provide the support that our community needs. In order to do so we wanted to make sure that we are always providing space for members to give their input. In two of out of the four general meetings we had this semester we allotted time to allow students what they want to get out of WIT. In the first of the two we let students do a massive brainstorming session. Then based on the responses, in the second meeting, we split folks into groups to discuss specific events they would like us to host. So we can get an idea of what people will be interested in and gain the most from. The responses ranged from casual social events to internship guidance/resources. 
+
+I say all of this to give context for the main event I would like to share. Out of all the amazing events we put one will stay on my mind forever. During a general meeting we did an activity where we paired upperclassmen with lower classmen in order for the latter to connect with students who understand all too well what they are going through and to ask any burning questions. As an upperclassmen I got the privilege to connect with a freshman computer science major named Suhani. We instantly clicked and talked about our goals, dreams, and interests. She told me about the minor she wants to pick up and really cool side projects she is working on. Eventually she asked about internships and I explained the process, my struggles, and some advice I had for her journey. We exchanged contact information and planned to share resources and keep each other updated on our personal projects. I know this interaction doesn’t seem grand or life changing, but I took something huge away from this. The experiences and information I relayed seemed to actually be helpful to her. 
+And I never thought I would have stories to share that would be helpful to anyone other than myself. 
